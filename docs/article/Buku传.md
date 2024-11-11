@@ -239,3 +239,6 @@ https://github.com/Mhy278/MinecraftServerHostGuide/blob/master/Optimization.md
 
 ![](/others/Buku传/75.png)
 
+# “Buku大佬谈战略”
+
+1[](/others/Buku传/76.png)
